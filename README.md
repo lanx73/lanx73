@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @lanx73 from 🇮🇹
+- 👀 I’m interested in living without hassle and not bothering others 🧘‍♂️
+- 🌱 I’m currently trying to get the very best out of life ✌️
+- 💞️ I’m looking to collaborate on making the planet a better place 🌎
+- 📫 How to reach me ... you won't reach me: I' ll always be right behind you 😈
